@@ -2,7 +2,7 @@
 
 |EXPERIMENTAL CODE, CODE MADE FOR LEARNING FROM UDEMY.|
 
-Frases do Motivacionais
+Frases Motivacionais
 
 Logo made by me.
 
